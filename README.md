@@ -4,6 +4,6 @@
 - 💞️ I want to collaborate on website design and management...
 - 📫 How to reach me look at the under please :) ...
 - E mail: sinanyazilim07@gmail.com
-- second E mail: sinantulum151@gmail.com
+- Second E mail: sinantulum151@gmail.com
 - My Twitter: www.twitter.com/sinan_tulum1
 - My instagram: www.instagram.com/sinan_tulum
