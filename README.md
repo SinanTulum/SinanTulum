@@ -5,5 +5,5 @@
 - 📫 How to reach me look at the under please :) ...
 - E mail: sinanyazilim07@gmail.com
 - second E mail: sinantulum151@gmail.com
-- my Twitter: www.twitter.com/sinan_tulum1
-- my instagram: www.instagram.com/sinan_tulum
+- My Twitter: www.twitter.com/sinan_tulum1
+- My instagram: www.instagram.com/sinan_tulum
